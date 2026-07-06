@@ -1,4 +1,4 @@
-# 
+# Inteligente degen coin sniper bot complementos para Mac OS | Novo degen coin sniper bot complementos para PC Windows. Com execução de pacotes e gestão de carteira — otimizado para máximo desempeño en cada plataforma.
 
 
 
